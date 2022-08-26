@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Maggie!
-- 👀 I’m interested in infrasound 🔊, geysers 💧, natural hazards ⚠️, and volcanic systems. 
+- 👀 I’m interested in: infrasound, geysers, natural hazards, and volcanic systems  
 - 🌱 Big fan of houseplants and puzzles 
 
 ## Current Projects
